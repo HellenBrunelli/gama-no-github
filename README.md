@@ -1,0 +1,2 @@
+Este curso está prático, e bem abrangente. O que vocês estão ensinando vai além de comandos, gostei muito dos termos usados. Uma coisa bem legal é que vocês ensinaram até a fazer subcategorias com os branchs, isso é realmente util e muito usado no dia a dia.
+E no geral, levando em conta todas as semanas tem sido enriquecedor aprender competências que vão além de códigos.
